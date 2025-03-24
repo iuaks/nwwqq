@@ -12,8 +12,4 @@ dsfds
 
 іфсфвіфв
 
-
-fgdsdsfsdfsd
-sdfdfsdfds
-
 dsfddssfds
